@@ -1,4 +1,4 @@
-## Hi there I'm John 👋
+## Hi there 👋
 
 🔭 I am currently a third year psychology student at the University of Western Australia and have over 13 years of experience in software engineering. 
 
