@@ -6,6 +6,4 @@
 
 📫 How to reach me: john@incremental.systems
 
-😄 Pronouns: He / Him
-
 ⚡ Fun fact: I have a wide variety of interests, if it exists I will probably enjoy talking about it 🗣️
